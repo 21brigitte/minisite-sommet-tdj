@@ -31,7 +31,7 @@ Participation à un festival culturel qui fait la promotion de la culture tradit
 
 
 
-Volet 1 : Du 8 au 13 août
+Volet 1 : Du 8 au 13 août (réservé aux antennes Terre des jeunes)
 ---------------
 
 trois premiers jours, préparations le matin.
@@ -75,7 +75,7 @@ Financement, et activités génératrices de revenus.
 
 
 
-Volet 2 : Du 14 au 18 août
+Volet 2 : Du 14 au 18 août (ouvert au public local et aux participants internationaux)
 ----------------
 
 #### LE MATIN :
